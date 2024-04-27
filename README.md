@@ -5,3 +5,4 @@
 - 📫 How to reach me *email* starmp4bussiness@gmail.com *discord* starmp4
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i play guitar, i listen to metal,rock,punk and everything in between, i used to skate and learning again
+- 🔗 https://starmp4.itch.io/   https://stats.fm/31vwwfyrt4bwah33scfspjcjxxta
