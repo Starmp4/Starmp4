@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Starmp4
 - 👀 I’m interested in Coding, Graphic Design, Music.
-- 🌱 I’m currently learning LUA and some other stuff on the side..
+- 🌱 I’m currently learning HTML and some other stuff on the side..
 - 💞️ I’m looking to collaborate on projects with friends mainly
-- 📫 How to reach me *email* starmp4bussiness@gmail.com *discord* starmp4
+- 📫 How to reach me *discord* starmp4
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: i play guitar, i listen to metal,rock,punk and everything in between, i used to skate and learning again
+- ⚡ Fun fact: i play guitar, i listen to all music except kpop lol, i used to skate and learning again
 - 🔗 https://starmp4.itch.io/   https://stats.fm/31vwwfyrt4bwah33scfspjcjxxta
